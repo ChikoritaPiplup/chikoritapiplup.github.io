@@ -1,1 +1,0 @@
-# chikoritapiplup.github.io
